@@ -1,0 +1,2 @@
+# ecoresonancia-numerologia
+Numerologia
